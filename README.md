@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @FreddieMaersk
 - 👀 I’m interested in series, games and music too!
 - 🌱 I’m currently learning about everything i can!
-- 💞️ I’m looking to collaborate on small project for school
+- 💞️ I’m looking to collaborate on small projects for school
 - 📫 How to reach me : Instagram and discord!
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i love Freddie Mercury LOL
